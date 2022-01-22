@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kyung-Min Chung
-- I'm an Artist with a heart full of Passion but a Corrupted Memory Card. Due to the nature of my afflictions, I will one day lose my memories, including having ever written this. I greatly value the moments that I have remaining and hope to use that time with my art to leave this world slightly brighter and more beautiful than when I entered it.  
+- I'm an Artist with a Heart Full of Passion but a Corrupted Memory Card. Due to the nature of my afflictions, I will one day lose my memories, including having ever written this. I greatly value the moments that I have remaining and hope to use that time with my Art to leave this world slightly brighter and more beautiful than when I entered it.  
 
 
 
